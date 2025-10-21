@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Money/Python  
 - 🌱 I’m currently learning ...How to make money
 - 💞️ I’m looking to collaborate on ...Ways to make money
-- 📫 How to reach me ...my snap(safest means i could think of) is incognegrosteve
+- 📫 How to reach me ...my snap(safest means i could think of) is Iluvmygurlfrnd
 - 😄 Pronouns: ...I'm/Him
 - ⚡ Fun fact: ...I currently have no money
 
